@@ -1,2 +1,2 @@
 # Eric-Komar-Writing
-This is a collection of my creative pieces.
+Posted here is a collection of my writing.
